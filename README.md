@@ -9,5 +9,5 @@ What about if your are new to the neighbourhood and want to get to know the neig
 If there is an event you want to promote within your community like a local get together, meetings etc. There is no social network for our community. 
 I would like to set up a social network that is based on your location say within a mile radius. So once you sign up you will be automatically be connected to the people that live around you. They will have a profile, wall, status screen, community blog, events , chat , and whatever we want really. 
 
-With the hussle and bustle of everyday live we need to connect with our community again and who knows, that one special person could be living 4 doors  down. 
+With the hustle and bustle of everyday live we need to connect with our community again and who knows, that one special person could be living 4 doors  down. 
 Tell me what you think. 
